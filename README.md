@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Luismi Carmona
+- 👀 I’m a Computer engineering student and SimRacing caster
+- 📫 To contact me, just DM me on my Instagram or Twitter account (@luismi.2801 and @luismi_carmona respectivly)
