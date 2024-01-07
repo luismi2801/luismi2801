@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Luismi Carmona
-- 👀 I’m a Computer engineering student, Engranando Marcha's radio podcast hoster and SimRacing caster
+- 👀 I’m a Computer engineering student, Engranando Marcha's radio podcast hoster
 - 📫 To contact me, just DM me on my Instagram or Twitter account (@luismi.carmona and @luismi_carmona respectively)
